@@ -18,7 +18,7 @@ Epicgames user: death_lok09
 
 Telegram User: Brick5792
 
-Twitter user: Brick5782
+Twitter user: Brick5792
 
 Reddit: https://www.reddit.com/user/zylich
 
@@ -26,4 +26,4 @@ Facebook:https://www.facebook.com/eijaz.hanif.5/
 
 YoutTube: https://www.youtube.com/channel/UCh7eByzqHXSyMe_KJKFNEgA
 
-https://www.instagram.com/b4rick5792/
+dead insta: https://www.instagram.com/b4rick5792/
