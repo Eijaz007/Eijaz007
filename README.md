@@ -1,4 +1,4 @@
-I teach finess.
+I teach finesse.
 
 my social:
 
